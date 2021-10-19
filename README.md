@@ -1,1 +1,1 @@
-omuraisu
+yakiniku sushi omuraisu
